@@ -142,5 +142,5 @@ A: Yes, I'm bilingual and can handle projects in both English and Spanish.
 
 ---
 
-*Last Updated: August 2026*
+*Last Updated: November 2026*
 
